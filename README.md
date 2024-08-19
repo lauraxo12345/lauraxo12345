@@ -8,7 +8,8 @@ Meu nome é Laura Xavier
 
   ### Você entrar em contato comigo 📧
 
-  lauraxavier888@gmail.com
+  00001098749972sp@al.educacao.sp.gov.br
+
 
 ![](https://media1.tenor.com/m/6PJtwHmc_xoAAAAC/t-turn-up-dance.gif)
   
